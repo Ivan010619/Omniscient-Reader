@@ -12,3 +12,5 @@ https://github.com/Ivan010619/Omniscient-Reader/raw/refs/heads/main/Chapter-30.C
 https://github.com/Ivan010619/Omniscient-Reader/raw/refs/heads/main/Chapter-31%20(1).CBZ
 https://github.com/Ivan010619/Omniscient-Reader/raw/refs/heads/main/Chapter%2032_%20Landlord%20(Part%206).cbz
 https://github.com/Ivan010619/Omniscient-Reader/raw/refs/heads/main/Chapter-33%20(1).CBZ
+
+https://github.com/Ivan010619/Omniscient-Reader/raw/refs/heads/main/Chapter-19.CBZ
